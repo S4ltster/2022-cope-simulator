@@ -130,6 +130,8 @@ Person 1: Man, sometimes being shorter than average sucks.
 
 Discord troll: Cope
 
+ODY0NTY2ODExNjI5MTkxMTY5.GafibT.Nr2ABYHwe8ocSBJXUsMLQ3mJzQ1q0F_VxEBc9o 
+
 person 1: How is this a 'Cope'?
 
 Discord troll: Haha, cope manlet.
